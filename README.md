@@ -29,7 +29,7 @@ I'm a 3rd-year Internet of Things (IoT) student at DUT, based in South Africa, w
 - Website development for clients  
 
 ### 📫 Connect with Me
-- Email: [adithiya.maharaj31@gmail.com](mailto:adithiya.maharaj31@gmail.com)  
+- Email: [adhi.maharaj@icloud.com](mailto:adhi.maharaj@icloud.com) 
 - LinkedIn: [Adithiya Premraj Maharaj](https://www.linkedin.com/in/adithiya-premraj-maharaj-a39100274)  
 - Instagram: [@adi_maharaj31](https://www.instagram.com/adi_maharaj31?igsh=MXBydG1pNGhyMzF3Zg%3D%3D&utm_source=qr)
 
